@@ -1,1 +1,0 @@
-# princimangukiya.github.io
